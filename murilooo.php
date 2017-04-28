@@ -1,2 +1,0 @@
-vai murilos
-vai rary
